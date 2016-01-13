@@ -1,0 +1,2 @@
+# Projekt_BTS_Dymarska_Mos_Trzcina
+Klasteryzacja BTS
